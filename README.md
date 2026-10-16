@@ -1,0 +1,2 @@
+# Weave-Node
+WEAVE NODE SMART THOTHS
